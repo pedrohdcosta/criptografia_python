@@ -1,1 +1,1 @@
-Membros do time Pedro Dias, Mateus Sales
+Membros do time Pedro Dias, Antonio Favarin, Mateus Sales
